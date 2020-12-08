@@ -1,0 +1,1 @@
+# anytakazinak.github.io
